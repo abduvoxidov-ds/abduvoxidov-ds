@@ -43,5 +43,5 @@ I am a Data Science student with a solid foundation in core data science concept
 
 ### 📬 Connect with me
 
-* **Telegram:** [@daler_abduvoxidov](https://t.me/daler_abduvoxidov)
+* **Telegram:** [@sabr_5657](https://t.me/sabr_5657)
 * **Email:** [dalerabduvoxidov019@gmail.com](mailto:dalerabduvoxidov019@gmail.com)
